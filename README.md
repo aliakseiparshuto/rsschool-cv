@@ -1,1 +1,1 @@
-# rsschool-cv
+https://aliakseiparshuto.github.io/rsschool-cv/
